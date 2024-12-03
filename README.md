@@ -1,3 +1,3 @@
 # furnish-your-future
 
-https://user-vishnu.github.io/furnish-your-future/
+https://IncarnatorX.github.io/furnish-your-future/
